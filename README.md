@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **tanishsuthar2316@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/14A6KcIpQztLFd1OL3XqhxYn2D9VfSP-O/view?usp=sharing](https://drive.google.com/file/d/14A6KcIpQztLFd1OL3XqhxYn2D9VfSP-O/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ZOqHLOeDTP8Pu5qeoGIYhVjcLMYQRDlV/view?usp=sharing](https://drive.google.com/file/d/1ZOqHLOeDTP8Pu5qeoGIYhVjcLMYQRDlV/view?usp=sharing)
 
 - ⚡ Fun fact **I can solve Rubik's cube in less than 30 seconds**
 
